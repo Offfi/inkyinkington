@@ -1,14 +1,13 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=inkyinkington&color=fc68c6&label=^0^"> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=Offfi&color=efeee2&label=^u^"> </p>
 <p align="center"> ____________________________________________________________ </p>
 <p align="center">
-<img src="https://files.catbox.moe/dho84g.png">
+<img src="https://files.catbox.moe/dc0sig.png">
 </p> 
-<p align="center"> 𐄈　inky 　﹒　ink　﹒ character in cos.  ⸝⸝   𝄢　𐑞</p>
-<p align="center"> 𐄈　 ╰      ✙𓈒 ⠀⇵  ⠀  any  ⠀⸝⠀ she / they pref　　𐂯</p>
+<p align="center"> 𐄈　sammy 　﹒　juno　﹒ character in cos.  ⸝⸝   𝄢　𐑞</p>
+<p align="center"> 𐄈　 ╰      ✙𓈒 ⠀⇵  ⠀  he / hym  ⠀⸝⠀ rblx lvr　　𐂯</p>
 <p align="center"> 𐄈　⠀⠀ ⠀ ⠀(⇀‸↼‶) 　cuddle + cover + touch comf , dnc light inspo is fine with permisson !　      ! ?</p>
 <p align="center"> 𐄈　⠀⠀ ⠀"⠀ ⠀⠀ 𓏲         𓌔  𓌔          ➴</p>
 <p align="center"> read for info ↴ </p>
 <p align="center"> ____________________________________________________________ </p>
 
-<p align="center"> <a href="https://inkyinkington.straw.page/">strawpage</a> + <a href="https://rentry.co/inkytheinkazoid">rentry</a> + <a href="https://inkyinkington.atabook.org/">atabook</a> + <a href="https://pronouns.cc/@1nkyluv">pronouns page</a> </p>
-art by linquinttt on tiktok! ^_^
+<p align="center"> <a href="https://doq.straw.page/">strawpage</a> + <a href="https://www.roblox.com/users/3607135618/profile">rblx</a> + <a href="https://pronouns.cc/@doq">pronouns page</a> </p>
